@@ -1,1 +1,0 @@
-# vypis-dochazka-pvy
